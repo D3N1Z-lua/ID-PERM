@@ -1,19 +1,19 @@
 # ID-PERM
 ID PERMANENT FIVEM
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
-https://discord.gg/VtRKMzfXBs
+https://discord.gg/dnz
 
